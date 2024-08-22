@@ -2,7 +2,7 @@
 - 👀 I’m interested in Coding
 - 🌱 I’m currently learning school
 - 💞️ I’m looking to collaborate on github
-- 📫 How to reach me @uwuknivies on discord
+- 📫 How to reach me 0220210738
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: I like pandas
 
